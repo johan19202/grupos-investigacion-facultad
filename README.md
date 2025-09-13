@@ -1,1 +1,0 @@
-# grupos-investigacion-facultad
